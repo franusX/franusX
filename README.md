@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @franusX
-- 👀 I’m interested in cars and computers
+- 👀 I’m interested in simracing and computers
 - 🌱 I’m currently learning programming
 - ⚡ Fun fact: i like cars
 
